@@ -9,9 +9,9 @@
 
 - 👯 I’m looking to collaborate **with different developers.**
 
-- 🤝 I’m looking for help with Machine learning. **with Machine learning.**
+- 🤝 I’m looking for help **with Machine learning.**
 
-- 📝 I regularly [read hindi write-ups.](read hindi write-ups.)
+- 📝 I regularly read hindi write-ups.
 
 - 💬 Ask me about **my skills.**
 
